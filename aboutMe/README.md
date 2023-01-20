@@ -11,6 +11,6 @@ Currently, I'm taking these classes listed below!
 3. EE 280
 4. Music 116
 
-*These are my hobbies! **
+*These are my hobbies! *
 
 I love to play Overwatch and Minecraft. I like to read romance books and I love romance shows!
